@@ -124,6 +124,92 @@ Karina de Souza and Kiraly García de Olivera (Florianopolis)
 Tango Escenario Champions:
 Bruna Estellita Lins Mourao and Diogo Carvalho de Souza (Río de Janeiro)
 
+
+Contact:
+
+http://preliminartangobrasil.com/
+
+### ITALY - Rome / Roma
+
+Date: May 7th to 10th, 2015.
+
+Tango de Pista Champions:
+
+Bruno Ciarfella y Alessandra Moro
+
+ 
+
+Tango Escenario Champions:
+
+Michele Lobefaro y Emanuela Benaggiano. 
+
+Contact:
+
+European Tango Society
+eutangosociety@gmail.com
+http://www.eutango.com/
+
+### UNITED STATES - San Francisco
+
+Date: April 2 to 5, 2015
+
+Tango de Pista y Tango Escenariob Champions:
+
+Ivan Troshi and Yamila Viana
+
+Contact:
+
+Andrea Monti
+montitango@hotmail.com
+http://tangousachampionship.com/
+
+### KOREA - Seoul
+
+Date: May 16th and 17th, 2015.
+
+Campeones de Tango de Pista:
+
+Kim-Yoon Woo and Cho-Ho Jong
+
+ 
+
+Campeones de Tango Escenario:
+
+Maiko Aoki and Maicol Stive Mira Munoz
+
+Contact:
+
+http://koreatango.kr/
+
+### ASIA REGIONAL - Tokyo
+
+Date: June 6th and 7th, 2015.
+
+Tango de Pista Champions:
+Maiko Aoki y Maicol Mira
+
+Tango Escenario Champions:
+Natsuko Mae y Rodrigo Hideki Ohira Rodriguez
+
+Contact:
+
+http://campeonatoasiatico.com/
+
+### CHILE - Valparaíso
+
+Date: June 27th and 28th, 2015.
+
+Tango de Pista Champions:
+Anita Irene Ponce Rojas and Ezequiel Antonio Núñez Muñoz 
+
+Tango Escenario Champions:
+Jassoara Huerta Lagos and Héctor Ismael Espinosa Díaz 
+
+Contact:
+
+www.municipalidaddevalparaiso.cl
+
+
 ## ARGENTINA NATIONAL
 
 ### Azul
@@ -294,88 +380,3 @@ augustomotroni@hotmail.com
  
 
  
-
-Contact:
-
-http://preliminartangobrasil.com/
-
-### ITALY - Rome / Roma
-
-Date: May 7th to 10th, 2015.
-
-Tango de Pista Champions:
-
-Bruno Ciarfella y Alessandra Moro
-
- 
-
-Tango Escenario Champions:
-
-Michele Lobefaro y Emanuela Benaggiano. 
-
-Contact:
-
-European Tango Society
-eutangosociety@gmail.com
-http://www.eutango.com/
-
-### UNITED STATES - San Francisco
-
-Date: April 2 to 5, 2015
-
-Tango de Pista y Tango Escenariob Champions:
-
-Ivan Troshi and Yamila Viana
-
-Contact:
-
-Andrea Monti
-montitango@hotmail.com
-http://tangousachampionship.com/
-
-### KOREA - Seoul
-
-Date: May 16th and 17th, 2015.
-
-Campeones de Tango de Pista:
-
-Kim-Yoon Woo and Cho-Ho Jong
-
- 
-
-Campeones de Tango Escenario:
-
-Maiko Aoki and Maicol Stive Mira Munoz
-
-Contact:
-
-http://koreatango.kr/
-
-### ASIA REGIONAL - Tokyo
-
-Date: June 6th and 7th, 2015.
-
-Tango de Pista Champions:
-Maiko Aoki y Maicol Mira
-
-Tango Escenario Champions:
-Natsuko Mae y Rodrigo Hideki Ohira Rodriguez
-
-Contact:
-
-http://campeonatoasiatico.com/
-
-### CHILE - Valparaíso
-
-Date: June 27th and 28th, 2015.
-
-Tango de Pista Champions:
-Anita Irene Ponce Rojas and Ezequiel Antonio Núñez Muñoz 
-
-Tango Escenario Champions:
-Jassoara Huerta Lagos and Héctor Ismael Espinosa Díaz 
-
-Contact:
-
-www.municipalidaddevalparaiso.cl
-
