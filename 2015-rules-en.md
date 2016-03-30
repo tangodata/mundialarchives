@@ -129,3 +129,109 @@ The Organization will properly solve any inconvenience not considered in these R
 In case of distrust or disagreement, participants may submit a written statement (in Spanish or English) to the Organization and not directly to the Jury, in accordance to the terms of the Law of Administrative Procedure (Dec. 1.510/97).
 
 In case of controversy in the interpretation or implementation of these Rules, the participants and the Organization agree to be subjected to the jurisdiction of the Administrative Litigation and Tax Court of the Autonomous City of Buenos Aires. The parties hereby expressly renounce to any other venue or jurisdiction that may be applicable for any reason. For these purposes, the parties establish that their legal valid residence is the one indicated in the registration form. Any notifications shall be served upon such residence. Furthermore, any legal notification that may be served upon the G.C.A.B.A. (Buenos Aires Autonomous City Government) shall be sent to the following address: Uruguay 440, 2o piso, of. 27, in accordance with Executive order number 3.758/85 (B.M. number 17.540 - AD 280.4), Legal notice number 868/CSJN/87, and Executive order number 294/GCBA/97 (BOCBA number 168).
+
+## Rules 2015 CITY TANGO DANCE CHAMPIONSHIP
+
+### ORGANIZATION
+
+- 1. The Office of Festivals and Central Events of the Ministry of Culture of the Autonomous City of Buenos Aires, hereafter OF&CE, is the highest authority regarding the organization, program planning, and execution of the 12th City Tango Dance Championship, hereafter CHAMPIONSHIP, and will also monitor the compliance with all the terms and conditions set out herein.
+
+### CATEGORIES
+
+- 2. The present edition of the CHAMPIONSHIP comprises the following categories: Dance-Floor Tango, Milonga Dancers of the World, Milonga, and Vals.
+ 
+In the case of Dance-Floor Tango, the category is further broken down into two (2) subcategories according to age: Adult, for people aged 18 (by April 29, 2015) to 45, and Senior, for people aged 45 and over (by April 29, 2015). The corresponding subcategory will be determined by the age of the younger member of the couple.
+
+### REGISTRATION
+
+- 3. Participation in the CHAMPIONSHIP is free of charge. Couples who register in milongas with an entry fee must pay such amount.
+- 4. Registration is online at the official website: <a href="http://www.tangobuenosaires.gob.ar/">www.buenosaires.gob.ar/festivales</a>; or in person at our offices located on Av. Roque Sáenz Peña 832, 6th floor, from Monday to Friday, from noon to 5 PM. For more information regarding how to register, please call 0800 333 7848 from Monday to Friday, from noon to 6 PM. __Each category has a limited number of participants__.
+- 5. Couples can register from April 13 until 24 hours before the selected competition date/s of the QUALIFYING ROUNDS, in conformity with the published schedule. In order to participate, couples must provide all required documents at the time of check-in at each venue.
+- 6. The OF&CE is entitled to extend the registration period if deemed necessary.
+- 7. Couples are allowed to register up to 3 times with the same couple in each of the categories for which they are eligible.
+- 8. To be eligible to register in the Dance-Floor Tango category (Senior and Adult), dance couples must consist of amateurs and/or professionals with Argentine ID (DNI), regardless of their country of origin, aged 18 years (by April 29, 2015) or over, and at least one member of the couple must be a native of the Autonomous City of Buenos Aires or provide proof of residence with a document showing a current address in the City. Both participants are required to provide their ID (DNI, CI or Passport) to prove their identity, place of birth, and place of residence at each stage of the competition.
+- 9. To be eligible to register in the Vals and Milonga categories, dance couples must consist of amateurs and/or professionals aged 18 or over at the time of registration, regardless of their nationality and place of residence. Both participants must provide their ID (DNI, CI or Passport) to prove their identity, place of birth, and place of residence at each stage of the competition.
+- 10. To be eligible to register in the Milonga Dancers of the World category, dance couples must consist of amateurs and/or professionals aged 18 or over at the time of registration, who can provide proof of residence outside of the City of Buenos Aires. At each stage of the competition, both participants must provide their ID (DNI, CI or Passport) to prove their identity, place of birth, and place of residence.
+- 11. Contestants may compete with the same partner up to 3 times (in the category/ies for which they are eligible) as long as they have not been selected to advance to the next round. It is not possible for a contestant to participate in the Semifinals in the same category with different partners; only the couple that qualifies first will be valid.
+- 12. Non-residents of the Autonomous City of Buenos Aires who register to participate in the Dance-Floor Tango category accompanying a city resident are not allowed to simultaneously compete in the Milonga Dancers of the World category.
+- 13. All the information provided at the moment of registration for the Qualifying Rounds will be considered a sworn statement. Any intentional omission or false statement by either member of the couple may result in disqualification from the competition regardless of the stage they are in.
+
+### REQUIRED DOCUMENTS
+
+- 4. All participants are required to show a valid ID card (DNI, Libreta Cívica, CI, or Passport). Expired or illegible IDs will not be accepted.
+
+### COMPETITION STAGES
+
+- 5. The competition will be unique and open, and will not be broken down into divisions such as city areas or professional level. At every stage, participants will compete in one or more group performances. The music for dancing, number of songs and versions, will be determined by the Jury and the OF&CE.
+
+The CHAMPIONSHIP will consist of three stages of competition: Qualifying Rounds, Semifinals and Final.
+
+- 6. __QUALIFYING ROUNDS__
+
+The Qualifying Rounds will he held at the official Cultural Centers and milongas of the CHAMPIONSHIP. The couples selected by the Jury will advance to the next stage (Semifinals) at an approximate rate of 1 in every 5 registered couples per category.
+
+At this stage, contestants are allowed to register up to 3 times per category with the same couple, as long as they have not yet qualified for the next stage. It is not possible for a contestant to participate in the Semifinals in the same category with different partners; only the couple that qualifies first will be valid.
+
+- 7. __SEMIFINALS__
+
+Couples selected in the Qualifying Rounds will participate at this stage. They will be divided into equally numbered groups. Couples from each group with the highest score will be selected to advance to the Final.
+
+- 8. __FINAL__
+
+At this stage, one (1) of the couples selected will be crowned champion. Also, special mentions may be awarded to the second (2nd) and third (3rd) positions, as well as other mentions that the Jury may deem appropriate.
+
+The couples that win the first (1st) place in the Final of the City Dance Championship in the Salon Tango category (Adult and Senior) will represent the Autonomous City of Buenos Aires in the Final of the 13th Dance World Cup, which will be held in August in the framework of the Tango Buenos Aires Festival and World Cup 2015. Second (2nd) to fifth (5th) place winners will represent the Autonomous City of Buenos Aires in the Semifinals of the 13th Dance World Cup, in the framework of the Tango Buenos Aires Festival and World Cup 2015.
+
+The couple that wins the first place in the Milonga Dancers of the World category will represent their category in the Semifinal of the 13th Dance World Cup, in the framework of the Tango Buenos Aires Festival and World Cup 2015.
+
+The Milonga and Vals categories are not qualifying competitions for the 13th Dance World Cup, held in the framework of the Tango Buenos Aires Festival and World Cup 2015.
+
+### CONTEST (EVALUATION CRITERIA)
+
+- 9. Once formed, the couple must not separate while the music plays. This means that they will not break the embrace.
+- 10. For the position to be considered correct, the body of one of the members of the couple must be contained all the time by the arm of the other. It is understood that, in certain figures, this may be flexible, but not throughout the duration of the performance. All the movements must be made within the space allowed by the couple’s embrace.
+- 11. The Jury will take into account the couple’s embrace, musicality, walking style, circulation on the dance floor, gracefulness, personality, and especially the rhythm in milonga and vals dancing as fundamental to the final score.
+- 12. Within these parameters, the couple may perform any commonly used figures.
+- 13. Hooks (Gancho), jumps, climbs, and any other figure typical of stage tango are completely forbidden.
+- 14. Couples must constantly move counterclockwise and may not stay in the same part of the dance floor so as not to interfere with other dancers.
+- 15. Outfits will not be taken into consideration during the judging process, at any stage of the competition.
+- 16. The competition identification number shall be carried by the dance partner taking the lead.
+
+### JURY
+
+- 7. The Jury members of the CHAMPIONSHIP will be appointed by the OF&CE with the collaboration of a committee of notables.
+- 8. The Jury will be composed of three (3) members for the Qualifying Rounds, five (5) members for the Semifinals, and seven (7) for the Final. In addition to the Jury, a supervisor will be present at every stage.
+- 9. The Jury’s decision at each round is not subject to appeal.
+- 10. In the Final stage, the Jury will choose one (1) winner or champion and grant special mentions to the second (2nd) and third (3rd) places. The Jury will be entitled to award other special mentions that they deemed appropriate.
+
+### SELECTION PROCESS
+
+- At each of the three stages (Qualifying Rounds, Semifinals and Final), the final order of merit will be determined by the average of points given by each member of the Jury in accordance with the criteria described in the chapter CONTEST, on a scale of one (1) to ten (10) – Jury members are allowed to use decimals.
+- In case of a tie, or if determined by the Jury, the contestants will dance to the songs the members of the Jury consider necessary to reach a final determination. Participants may not refuse to perform.
+- The Jury’s decision in the Final will be set forth in writing before a notary public.
+
+### PRIZES
+
+- 4. The first (1st) place winners of each category of Dance-Floor Tango (Senior and Adult) will receive a prize of TWENTY THOUSAND PESOS ($20,000) and will qualify to participate in the Final of the 13th Dance World Cup, in the framework of the Tango Buenos Aires Festival and World Cup, to be held in August 2015.
+- 5. Second (2nd) to fifth (5th) place winners in Dance-Floor Tango (Senior and Adult) will represent the Autonomous City of Buenos Aires in the Semifinals of the 13th Dance World Cup, in the framework of the Tango Buenos Aires Festival and World Cup 2015.
+- 6. The couple that wins the first (1st) place in the Milonga Dancers of the World category will receive a prize of TWENTY THOUSAND PESOS ($20,000) and will qualify to participate in the Semifinals of the 13th Dance World Cup, in the framework of the Tango Buenos Aires Festival and World Cup 2015, representing their category.
+- 7. The winning couple of the Milonga category will receive a prize of TEN THOUSAND PESOS ($10,000).
+- 8. The winning couple of the Vals category will receive a prize of TEN THOUSAND PESOS ($10,000).
+- 9. Second (2nd) to fifth (5th) place winners in the categories of Milonga and Vals will receive special mentions.
+- 10. All the contestants who qualify for the Semifinals will receive the corresponding certificate of participation in the 13th City Dance Championship.
+
+### RESPONSIBILITY
+
+- From the moment of entering the competition, each participant is responsible for showing up for competition at the notified venue, date and time. The OF&amp;CE will not take any responsibility for delays or unforeseen events that may arise for any reason, related to the moment of performance of the different contestants at the different STAGES.
+- The OF&CE is the only authority to establish the competition procedure, the order, and the number of rounds in which participants are to perform.
+- All the participants selected in the Qualifying Rounds to advance to the Semifinals and Final must show up for their performance on the date and time established by the OF&CE.
+
+Those participants who do not check in at the time established by the organization will not be able to continue in the CHAMPIONSHIP. A delay will only be considered in duly proven cases of force majeure and/or in the event of circumstances of public knowledge.
+
+- 4. All CHAMPIONSHIP contestants are committed to participating in various Championship-related ceremonies and events organized by the OF&CE, provided they are summoned for that purpose, including but not limited to press conferences, interviews for radio stations, over-the-air or cable television channels, etc.
+- 5. The OF&CE reserves the right to record all the stages of the CHAMPIONSHIP, by any means known or to be known, including but not limited to filming, recording, photographing, digitalization, by itself or third parties, for promotional or advertising purposes. All recordings are exclusive property of the OF&CE. __By entering the CHAMPIONSHIP, participants explicitly and irrevocably authorize the use of recorded material, without this implying or suggesting any compensation for any reason whatsoever from the OF&CE, in favor of any person or organization that claims entitlement to any right that may be invoked. This clause also includes without limitations all photographic material published and/or made available for promotion, advertisement or any other purpose.__
+- 6. The OF&CE will solve any problem not stated herein as well as establish clarifying regulations or interpretations, if deemed necessary.
+- 7. The OF&CE establishes the website&nbsp;<a href="//buenosaires.gob.ar/festivales">buenosaires.gob.ar/festivales</a> as the official means of communication for the CHAMPIONSHIP, without excluding other means.
+- 8. The OF&CE will be entitled to eliminate from the CHAMPIONSHIP those participants that: a) do not comply with the rules; b) commit any moral offense or improper act that tarnishes the image of the CHAMPIONSHIP, or may cause displeasure in the public.
+- 9. By merely signing the sworn statement when entering the CHAMPIONSHIP, contestants acknowledge and accept all the terms and conditions set out herein.
+- 10. In the case of doubt or interpretation of these Rules, including possible objections, these must be submitted in writing to the OF&amp;CE, in accordance with the terms of the Law of Administrative Procedure (Dec. 1.510/97 – BOGBA N° 310 – ratified by the Resolution of the Legislature of the Autonomous City of Buenos Aires N° 41/98 –BOGBA N° 454–).
