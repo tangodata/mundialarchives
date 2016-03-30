@@ -65,3 +65,18 @@ DANCE WORLD CUP REGISTRATION IS NOW OPEN
 From today, Wednesday, until Monday, July 27, registration is open for dancers interested in participating in Tango BA Dance World Cup.
 
 You can now complete the online form and register for Tango BA Dance World Cup, running from Tuesday, August 18 to Thursday, August 27. You can also register in person at the Festivales de Buenos Aires offices (Roque Saenz Peña 832 6th floor), on weekdays from noon to 6 PM. In either case, in order to complete the registration process, one member of the couple will have to bring the ID of both dancers (DNI or Passport) to the check-in, scheduled for August 15, 16 and 17 from 1.30 to 8 PM at Usina de Arte (Pedro de Mendoza 501). Registration will close on July 27, 2015. If you have questions, please call 0800 333 7848 on weekdays from noon to 6 PM or email us at competencia@festivales.gob.ar. 
+
+
+## Campeonato de baile de la Ciudad
+
+4-15 May 2016
+
+Tango Buenos Aires sintetiza una pasión que año tras año incrementa sus seguidores no sólo en Argentina sino también en el mundo y fortalece el compromiso con el patrimonio histórico, el crecimiento y la proyección del tango en todas sus expresiones.
+
+En el marco de Tango Buenos Aires, todos los años se realiza el Campeonato de Baile de la Ciudad, que el 2015 festejó su 11º aniversario. El mismo recorre cada noche de la competencia una milonga distinta del circuito típico porteño en busca de los mejores bailarines de la Ciudad.
+
+En el Campeonato de Baile comienza a vibrarse el latido del Mundial ya que los ganadores de esta instancia serán los encargados de representar a los porteños en Tango Buenos Aires Festival y Mundial. Para este evento tanguero único y de repercusión internacional, que tiene ya su fecha consagrada en el mes de agosto, miles de bailarines y público de todo el mundo llegan a la Ciudad para participar y vivir las diversas actividades que ofrece.
+
+El crecimiento, proyección e importancia del Tango más allá de las fronteras argentinas, ha logrado tal magnitud que en diciembre de 2009 fue declarado Patrimonio Cultural Inmaterial de la Humanidad, por decisión del Comité Intergubernamental de la UNESCO.
+
+Cada vez más actividades y eventos vinculados al género le dan riqueza a la agenda cultural porteña y enriquecen este bien que resume lo más singular y genuino de nuestras manifestaciones artísticas y culturales, mostrando los rasgos distintivos de la cultura porteña que conjuga la tradición, la renovación y la diversidad de una música que identifica a una Ciudad orgullosamente tanguera.
