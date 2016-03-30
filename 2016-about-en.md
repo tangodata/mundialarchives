@@ -71,12 +71,14 @@ You can now complete the online form and register for Tango BA Dance World Cup, 
 
 4-15 May 2016
 
-Tango Buenos Aires sintetiza una pasión que año tras año incrementa sus seguidores no sólo en Argentina sino también en el mundo y fortalece el compromiso con el patrimonio histórico, el crecimiento y la proyección del tango en todas sus expresiones.
+http://festivales.buenosaires.gob.ar/en/tangociudad
 
-En el marco de Tango Buenos Aires, todos los años se realiza el Campeonato de Baile de la Ciudad, que el 2015 festejó su 11º aniversario. El mismo recorre cada noche de la competencia una milonga distinta del circuito típico porteño en busca de los mejores bailarines de la Ciudad.
+Tango Buenos Aires embodies a passion that year after year attracts more followers, not only in Argentina but also around the world, and strengthens the commitment to the historical heritage, the growth and the projection of tango in all its ways of expression.
 
-En el Campeonato de Baile comienza a vibrarse el latido del Mundial ya que los ganadores de esta instancia serán los encargados de representar a los porteños en Tango Buenos Aires Festival y Mundial. Para este evento tanguero único y de repercusión internacional, que tiene ya su fecha consagrada en el mes de agosto, miles de bailarines y público de todo el mundo llegan a la Ciudad para participar y vivir las diversas actividades que ofrece.
+The City Dance Championship, on 2015 it celebrated its 11th anniversary, is held every year in the framework of Tango Buenos Aires. Every night, the competition visits a different milonga on the Buenos Aires traditional tango circuit, in search for the best dancers in the City.
 
-El crecimiento, proyección e importancia del Tango más allá de las fronteras argentinas, ha logrado tal magnitud que en diciembre de 2009 fue declarado Patrimonio Cultural Inmaterial de la Humanidad, por decisión del Comité Intergubernamental de la UNESCO.
+At the City Dance Championship, one can already start feeling the beat of the World Cup, since the winners of this competition will be in charge of representing the City at Tango Buenos Aires Festival and World Cup. This unique, world-renowned tango event, which already has a set date in the month of August, draws thousands of dancers and visitors from all over the world, who come to the City to participate and enjoy the different activities offered.
 
-Cada vez más actividades y eventos vinculados al género le dan riqueza a la agenda cultural porteña y enriquecen este bien que resume lo más singular y genuino de nuestras manifestaciones artísticas y culturales, mostrando los rasgos distintivos de la cultura porteña que conjuga la tradición, la renovación y la diversidad de una música que identifica a una Ciudad orgullosamente tanguera.
+The growth, projection and importance of Tango beyond Argentine borders has reached such magnitude that in December 2009 it was declared Intangible Cultural Heritage of Humanity, by decision of the Intergovernmental Committee of UNESCO.
+
+More and more activities and events linked to Tango enrich the cultural calendar of Buenos Aires and enhance this asset that represents the most unique and authentic of our artistic and cultural manifestations, showing the hallmarks of porteño culture – the combination of tradition, renewal and diversity of a type of music that proudly identifies the City.
