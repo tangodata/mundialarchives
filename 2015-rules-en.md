@@ -1,6 +1,4 @@
-Rules 2015
-==========
-## DANCE WORLD CUP 2015 RULES
+## Rules 2015 DANCE WORLD CUP 2015 RULES
 
 The Ministry of Culture of the Government of the Autonomous City of Buenos Aires announces the Dance World Cup 2015, to be held between August 18 and 27, 2015 within the framework of Tango Buenos Aires Festival and World Cup, in the Autonomous City of Buenos Aires, in accordance with the following terms and conditions.
 
@@ -132,13 +130,19 @@ In case of controversy in the interpretation or implementation of these Rules, t
 
 ## Rules 2015 CITY TANGO DANCE CHAMPIONSHIP
 
+CAMPEONATO DE BAILE DE TANGO DE LA CIUDAD
+
 ### ORGANIZATION
 
-- 1. The Office of Festivals and Central Events of the Ministry of Culture of the Autonomous City of Buenos Aires, hereafter OF&CE, is the highest authority regarding the organization, program planning, and execution of the 12th City Tango Dance Championship, hereafter CHAMPIONSHIP, and will also monitor the compliance with all the terms and conditions set out herein.
+- 1. The Office of Festivals and Central Events (_La Dirección General de Festivales y Eventos Centrales_) of the Ministry of Culture of the Autonomous City of Buenos Aires, hereafter OF&CE, is the highest authority regarding the organization, program planning, and execution of the 13th City Tango Dance Championship, hereafter CHAMPIONSHIP, and will also monitor the compliance with all the terms and conditions set out herein.
 
 ### CATEGORIES
 
-- 2. The present edition of the CHAMPIONSHIP comprises the following categories: Dance-Floor Tango, Milonga Dancers of the World, Milonga, and Vals.
+- 2. The present edition of the CHAMPIONSHIP comprises the following categories:
+   - Dance-Floor Tango (Tango de pista) 
+   - Milonga Dancers of the World (Milongueros del Mundo)
+   - Milonga, 
+   - Vals.
  
 In the case of Dance-Floor Tango, the category is further broken down into two (2) subcategories according to age: Adult, for people aged 18 (by April 29, 2015) to 45, and Senior, for people aged 45 and over (by April 29, 2015). The corresponding subcategory will be determined by the age of the younger member of the couple.
 
@@ -192,7 +196,7 @@ The Milonga and Vals categories are not qualifying competitions for the 13th Dan
 - 10. For the position to be considered correct, the body of one of the members of the couple must be contained all the time by the arm of the other. It is understood that, in certain figures, this may be flexible, but not throughout the duration of the performance. All the movements must be made within the space allowed by the couple’s embrace.
 - 11. The Jury will take into account the couple’s embrace, musicality, walking style, circulation on the dance floor, gracefulness, personality, and especially the rhythm in milonga and vals dancing as fundamental to the final score.
 - 12. Within these parameters, the couple may perform any commonly used figures.
-- 13. Hooks (Gancho), jumps, climbs, and any other figure typical of stage tango are completely forbidden.
+- 13. Hooks (Gancho), jumps (Saltos), climbs (Trepadas), and any other figure typical of stage tango (Trucos) are completely forbidden.
 - 14. Couples must constantly move counterclockwise and may not stay in the same part of the dance floor so as not to interfere with other dancers.
 - 15. Outfits will not be taken into consideration during the judging process, at any stage of the competition.
 - 16. The competition identification number shall be carried by the dance partner taking the lead.
