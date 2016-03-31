@@ -53,7 +53,7 @@ Latina co. ltd, 1-3-7-5F Ebisu-Minami, Shibuya-ku, Tokyo P.C. 150-0022, tel.(+81
 
 ### About the Judgment
 
-a) Tango de Pista (Open Entry)
+#### a) Tango de Pista (Open Entry)
 
 1. About Position of Tango Dance
 
@@ -67,7 +67,7 @@ a) Tango de Pista (Open Entry)
 5. Couples, as in a real dance hall, shall constantly move counterclockwise and avoid remaining in the same place for over two musical measures.
 6. All the entrants in this category are not allowed to raise their toe above their knee
 
-b) Stage Tango for couples (Open Entry)
+#### b) Stage Tango for couples (Open Entry)
 
 1. Participants will be able to express their personal view on the tango dance: they may resort to movements, figures and applications that are not usually related to traditional tango.
 2. Couples may break the embrace and use additional techniques derived from other dance disciplines, as long as these are justified and performed for the benefit of a particular rendition.
