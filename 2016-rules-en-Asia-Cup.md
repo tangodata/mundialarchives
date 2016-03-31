@@ -59,7 +59,6 @@ Latina co. ltd, 1-3-7-5F Ebisu-Minami, Shibuya-ku, Tokyo P.C. 150-0022, tel.(+81
 
    - Participants who don’t follow the regulation.
    - Participants who distract, trouble or disturb the Asian Championship.
-
     -　Once a dancing couple is formed, the partners shall not separate as  long as the music is playing. This means that they cannot break the  embrace, which is considered the tango dance position.  
     -　For the position to be considered correct, partners must constantly hold each other by means of the embrace. Even though during certain figures it may be acceptable to disregard this criterion, this should not continue throughout the entire piece.
     -　All movements shall be performed within the space allowed by the couple’s embrace.
