@@ -7,8 +7,8 @@ http://campeonatoasiatico.com/regulation_en.html
 It might be changed before the championship.
 
 ### General
-1- The Tango Dance Asian Championship will be held in the City of Tokyo, SAKURA HALL, Shibuya Cultural Center Owada on 18th and 19th of June, 2016 as a PRELIMINARY of The Tango Dance World Championship in Buenos Aires City.
-2- This competition will consist of two categories: Tango de Pista and Stage Tango for Couples. (Both are unrestricted entry for amateur and professional dancers).
+1. The Tango Dance Asian Championship will be held in the City of Tokyo, SAKURA HALL, Shibuya Cultural Center Owada on 18th and 19th of June, 2016 as a PRELIMINARY of The Tango Dance World Championship in Buenos Aires City.
+2. This competition will consist of two categories: Tango de Pista and Stage Tango for Couples. (Both are unrestricted entry for amateur and professional dancers).
 
 ### About Entries
 
