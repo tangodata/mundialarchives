@@ -55,8 +55,7 @@ Latina co. ltd, 1-3-7-5F Ebisu-Minami, Shibuya-ku, Tokyo P.C. 150-0022, tel.(+81
 
 #### a) Tango de Pista (Open Entry)
 
-1. About Position of Tango Dance
-
+1. About Position of Tango Dance:
   -　Once a dancing couple is formed, the partners shall not separate as 
     long as the music is playing. This means that they cannot break the 
     embrace, which is considered the tango dance position.  
