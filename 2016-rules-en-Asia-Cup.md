@@ -27,9 +27,9 @@ Latina co. ltd, 1-3-7-5F Ebisu-Minami, Shibuya-ku, Tokyo P.C. 150-0022, tel.(+81
 
 1. Both categories of the competition will consist of three stages: a) The Preliminary Round, b) The Semifinals and c) The Finals.
 
-  - Preliminary Round: for all couples that have entered. couples will dance once (Tango de Pista: 3 pieces of music Stage Tango: 1 piece of music).
-  - Semifinals: for the couples selected during the Championship preliminary rounds, couples will dance once. (Tango de Pista: three pieces of music x 1 round / Stage Tango: 1 piece of music x 1 round).
-  - Finals: for the couples selected in the Semifinals, couples will dance once.( Tango de Pista: three pieces of music x 1 round / Stage Tango: 1 piece of music x 1 round). The frequency of dance will be changed according to the numbers of entries.
+   - Preliminary Round: for all couples that have entered. couples will dance once (Tango de Pista: 3 pieces of music Stage Tango: 1 piece of music).
+   - Semifinals: for the couples selected during the Championship preliminary rounds, couples will dance once. (Tango de Pista: three pieces of music x 1 round / Stage Tango: 1 piece of music x 1 round).
+   - Finals: for the couples selected in the Semifinals, couples will dance once.( Tango de Pista: three pieces of music x 1 round / Stage Tango: 1 piece of music x 1 round). The frequency of dance will be changed according to the numbers of entries.
 
 2. In the Tango de Pista Category, couples will compete in group performances, dancing three pieces -either recorded or performed by a live orchestra- previously selected by the Committee.
 3. In the Stage Tango Category, each couple must submit music data, CD or CD-R of a piece of music. If the participants submit CD or CD-R, they must submit 2 discs which has the same music data. The music has to be Tango (no Theme of Milonga or Valz). Each one of couples will perform on the stage at a time. Length of a piece must be less than 4 min. Music data, CD or CD-R must be submitted by JUNE 3, 2016.
@@ -39,8 +39,8 @@ Latina co. ltd, 1-3-7-5F Ebisu-Minami, Shibuya-ku, Tokyo P.C. 150-0022, tel.(+81
 1. The Jury for the Tango Dance Asian Championship will be from Argentine excluding Argentines who live in Asia and members of jury from Asia.
 2. The Jury may eliminate the participants below.
 
-  - Participants who don’t follow the regulation.
-  - Participants who distract, trouble or disturb the Asian Championship.
+   - Participants who don’t follow the regulation.
+   - Participants who distract, trouble or disturb the Asian Championship.
 
 3. All of the decisions made by the jury are irreversible and of only one instance. Each individual’s entry corroborates his/her acceptance of this provision.
 4. In case of distrust or disagreement, participants may present a written statement (in Japanese, English or Spanish) to the committee and not directly to the Jury.
@@ -57,14 +57,14 @@ Latina co. ltd, 1-3-7-5F Ebisu-Minami, Shibuya-ku, Tokyo P.C. 150-0022, tel.(+81
 
 1. About Position of Tango Dance
 
-  *　Once a dancing couple is formed, the partners shall not separate as 
+   *　Once a dancing couple is formed, the partners shall not separate as 
     long as the music is playing. This means that they cannot break the 
     embrace, which is considered the tango dance position.  
-  *　For the position to be considered correct, partners must constantly 
-    hold each other by means of the embrace. 
+   *　For the position to be considered correct, partners must constantly 
+    hold each other by means of the embrace.
     Even though during certain figures it may be acceptable to disregard 
     this criterion, this should not continue throughout the entire piece.
-  *　All movements shall be performed within the space allowed by the 
+   *　All movements shall be performed within the space allowed by the 
     couple’s embrace.
 
 2. The Jury will give special relevance to the couple’s musicality, elegance and walking style.
