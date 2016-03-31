@@ -69,11 +69,11 @@ In this category, couples will compete in groups, dancing to three pieces previo
       -  Once a couple forms a dance frame, the partners shall not separate as long as the music is playing. This means that they cannot break the embrace, which is considered as the Tango dance position.
       -  For the position to be considered correct, partners must constantly hold each other by means of the embrace. It is understood that, in certain figures, this may be flexible; but not throughout the entire piece of music.
       -  All movements shall be performed within the space allowed by the couple’s embrace.
-2.    The Judges will give special relevance to thecouple’s musicality and connection, technique, music interpretation and elegant walking style.
+2.    The Judges will give special relevance to the couple’s musicality and connection, technique, music interpretation and elegant walking style.
 3.    Within these guidelines, participants may perform any figure commonly used, including barridas (sweeps), sacadas (close to the floor), enrosques (twists), etc.
 4.    Ganchos (hooks), saltos (jumps), trepadas (climbs) and any other typically stage tango possibilities where both feet lose contact with the floor are completely excluded.
 5.    Couples, as in a real dance hall, must constantly move counterclockwise and avoid remaining in the same place for too long to avoid the floor circulation.
-6.    None of the members of the couple may lift his/her legsbeyond the line of the knees. Some foot embellishments are allowed within this limit.
+6.    None of the members of the couple may lift his/her legs beyond the line of the knees. Some foot embellishments are allowed within this limit.
 7.    Elegant social dance wear for women and traditional suits for men are advised although costumes will not be considered as a specific evaluation point in this category.
 
  
@@ -84,9 +84,9 @@ In this category, couples will compete in groups, dancing to three pieces previo
 3.    Length of a piece has to be between 2.30 and 3.00 minutes. Teachers must prepare and submit a clean and good quality CD and/or pendrive the piece of music (Tango or Vals) that the group will perform. All music must be recorded at the proper speed. Speed control will not be adjusted. Labels will be provided for music and must be attached to CDs with the following information: teacher or group name, song name and orchestra name. It is suggested that you bring a backup in case there is a problem with your master copy.
 4.    Whole scenic space must be used. The size of the dance floor should be taken into account when preparing the choreography, being 66’ x 40’.
 5.    If any object/element is incorporated into the choreography, which is optional, (e.g., hats, chairs, fans,) it must be used in a way that makes sense in the choreography. The use of harmful materials such as powders, liquid, fire is prohibited. If the stage is littered by participants’ props or costumes, please be prepared to clean the stage immediately after the routine has finished.
-6.    The routines will consist primarily of tango moves with proper technique (all tango styles are allowed) but it is mandatory routines includetraditional figures of Tango such as ochos, long walks, boleos, ganchos, molinetes and also the “milonguero” embrace. Movements should be expressive of feelings and should interpret the music.
+6.    The routines will consist primarily of tango moves with proper technique (all tango styles are allowed) but it is mandatory routines include traditional figures of Tango such as ochos, long walks, boleos, ganchos, molinetes and also the “milonguero” embrace. Movements should be expressive of feelings and should interpret the music.
 7.    Techniques, movements, figures and applications that are not usually related to traditional Tango derived from other dance disciplines can be used, as long as these are justified in the choreography.
-8.    A maximum of 3 aerial tricksare permitted in this category, (although they are not compulsory).
+8.    A maximum of 3 aerial tricks are permitted in this category, (although they are not compulsory).
 9.    Choreographic components must be present in the choreographic composition:  Introduction, body and end.
 10.    Use of space, time, energy and shape of the movement (row formations, canons, displacements, focus) creativity, style, richness and complexity of movement, dynamics,  the shape and choreography design will be taken into account.
 11.    There should be similarity and accuracy in the execution of choreographed movements among the group members; fluidity and apparent ease in his realization will be observed. If choreographic resources such as CANON are used, it must be done with integral precision, certainty and clarity by each and everyone of the competitors.
