@@ -55,4 +55,7 @@
 ### SPECIAL PRESENTATION
 
 - Gloria y Eduardo, nunca dejamos de bailar  / Gloria y Eduardo, nunca dejamos de bailar 
-- 
+
+### PRODUCT FAIR
+
+The well-stocked Product Fair is already a traditional part of every edition of the Tango Buenos Aires Festival & World Cup. Held this year at Usina del Arte, it will bring the production of small and medium-sized entrepreneurs to a mass of visitors. The exhibit displays dance shoes, clothing, design objects, crafts, records, books, among other products related to the world of tango.

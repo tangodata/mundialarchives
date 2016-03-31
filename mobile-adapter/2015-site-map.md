@@ -170,17 +170,37 @@ Tourist interest:
   Museum?
     
 ```
+Apps
+
+BA government cultural 
+http://www.buenosaires.gob.ar/aplicacionesmoviles/ba-cultural
+
+News Media
+- Radio La 2x4, FM 92.7 from Usina del Arte 
+  http://www.buenosaires.gob.ar/la2x4
+  Listen http://www.goear.com/La2x4
+  Schedule http://www.buenosaires.gob.ar/noticias/transmisiones-en-vivo-del-tango-ba-festival-y-mundial-2014
+- play on demand http://festivales.buenosaires.gob.ar/es/audios
+- Webcasting (official) http://www.festivales.gob.ar/
+- TV Publica http://www.tvpublica.com.ar/   (has a live webstream)
+- Cadena 2 http://www.cadena3.com
+- TN http://tn.com.ar/tags/mundial-de-tango
+- FM Radio Cultura 97.9 http://fmradiocultura.com.ar
+- A24 http://www.a24.com/
+- Canal21 http://www.a24.com/
+- FM Tango Rosario 98.5 on Ustream http://www.ustream.tv/channel/fm-tango-en-vivo
+- Canal de la Ciudad http://www.buenosaires.gob.ar/canaldelaciudad
 
 
+Print Media
+- Ambito Financiero
+- La Prensa
+- Clarin http://www.clarin.com/tema/mundial_de_tango.html
+- La Razon
+- Buenos Aires Economico
+- Tiempo Argentino
+- Pagina 12
+- Muy
+- Buenos Aires Herald (EN)
 
 
-
-       
-
-
-
-
-
-
-
-About        
