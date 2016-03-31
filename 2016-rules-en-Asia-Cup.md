@@ -57,14 +57,14 @@ Latina co. ltd, 1-3-7-5F Ebisu-Minami, Shibuya-ku, Tokyo P.C. 150-0022, tel.(+81
 
 1. About Position of Tango Dance
 
-   *　Once a dancing couple is formed, the partners shall not separate as 
-    long as the music is playing. This means that they cannot break the 
+    *　Once a dancing couple is formed, the partners shall not separate as          
+    long as the music is playing. This means that they cannot break the  
     embrace, which is considered the tango dance position.  
-   *　For the position to be considered correct, partners must constantly 
+    *　For the position to be considered correct, partners must constantly 
     hold each other by means of the embrace.
     Even though during certain figures it may be acceptable to disregard 
     this criterion, this should not continue throughout the entire piece.
-   *　All movements shall be performed within the space allowed by the 
+    *　All movements shall be performed within the space allowed by the 
     couple’s embrace.
 
 2. The Jury will give special relevance to the couple’s musicality, elegance and walking style.
@@ -88,8 +88,9 @@ Latina co. ltd, 1-3-7-5F Ebisu-Minami, Shibuya-ku, Tokyo P.C. 150-0022, tel.(+81
 
 ### About the Management
 
-1. The Asian Championship is organized by Buenos Aires City Government of Culture Secretary Federacion Japonesa Tango Argentina and Latina co. Ltd.
-2. The championship in Asia will be cosponsored by The embassy of Argentine in Japan.
+1. The Asian Championship is organized by Buenos Aires City Government of Culture Secretary, 
+Federacion Japonesa Tango Argentina, and Latina co. Ltd.
+2. The championship in Asia will be co-sponsored by The Embassy of Argentine in Japan.
 3. The cooperated company of The Asian championship will be published here.
 4. The Committee disclaims responsibility for any delays or unforeseen contingencies that may arise, regardless of cause, at the moment contestants are due to perform in the different rounds.
 5. The Committee reserves the right to capture or record on film, be that totally or partially, Championship performances throughout all the stages, for promotion or sales ends, without having to make any payment to any person or organization for such resolve. This provision also accounts for any photographic material published and/or utilized for promotion, advertisement, or any other purpose the Management may decide on.
