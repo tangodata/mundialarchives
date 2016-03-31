@@ -57,11 +57,15 @@ Latina co. ltd, 1-3-7-5F Ebisu-Minami, Shibuya-ku, Tokyo P.C. 150-0022, tel.(+81
 
 1. About Position of Tango Dance
 
-  -　Once a dancing couple is formed, the partners shall not separate as long as the music is playing. This means that they cannot break the embrace, which is considered the tango dance position.
-  
-  -　For the position to be considered correct, partners must constantly hold each other by means of the embrace. Even though during certain figures it may be acceptable to disregard this criterion, this should not continue throughout the entire piece.
-  
-  -　All movements shall be performed within the space allowed by the couple’s embrace.
+  -　Once a dancing couple is formed, the partners shall not separate as 
+  long as the music is playing. This means that they cannot break the 
+  embrace, which is considered the tango dance position.  
+  -　For the position to be considered correct, partners must constantly 
+  hold each other by means of the embrace. 
+  Even though during certain figures it may be acceptable to disregard 
+  this criterion, this should not continue throughout the entire piece.
+  -　All movements shall be performed within the space allowed by the 
+  couple’s embrace.
 
 2. The Jury will give special relevance to the couple’s musicality, elegance and walking style.
 3. Within these guidelines, participants may perform any figure commonly used, including barridas, sacadas close to the floor, enrosques, etc.
