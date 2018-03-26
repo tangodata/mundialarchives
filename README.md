@@ -19,4 +19,6 @@ http://www.airesdemilonga.com/es/home/todos-los-videos/viewcategory/19/mundial-d
 http://www.airesdemilonga.com/es/home/todos-los-videos/viewcategory/17/mundial-de-tango-2012
 
 
+### Ministry of Culture -- Plan Nacional de Promocion del Tango
+http://www.cultura.gob.ar/agenda/plan-nacional-de-promocion-del-tango/
 
